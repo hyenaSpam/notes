@@ -1,5 +1,8 @@
 # notes
 
+email link:
+https://links.hyenaspam.com/a/click?_t=64c9ab773704479dbd7c64eacde37a16&_m=rPM1VerJbcku8Rw5T8u2uWqNzvzhakC2&_e=tBDCHpvdy-OLlTHmaqwhQ641VX4EewG4RmY7w4j3nLIKUE4uSPkQOTG1854GBZiG4JSU-mM94soJMJGOnhm67Sr25O9c5Xy_yRJ9B0uzDevpuW8KkVaBX4ldBtl2MH7uHpOPJSlwOf8XW6Z0nDgGO7IZbR7q1ougTkj3IEN6INQevvREAGCo3OOsJM98AambbQaEeb_-oZ8fhzT7fbWUcIpsbCGKASLr2Y166Vq7Jbe6RgBjNO-8mtxTEj92elsczrVg7kw81u5gUSOhSYUoq20_7bgZxd-Bg3uY0J4dR1s%3D
+
 Link Tracking Universal Links test:
 https://links.hyenaspam.com/a/black
 
